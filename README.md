@@ -1,1 +1,1 @@
-# Seld-projects
+# Self-projects
